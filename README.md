@@ -1,2 +1,2 @@
 # xtez
-Visit to share public information with Github
+XTEZ Cryptocurrency Public Technology Unveils
